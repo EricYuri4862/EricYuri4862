@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Eric Yuri 😁
+## Bem-vindo(a) ao perfil de Eric Yuri 😁
 
  <div>
    <a href="https://github.com/EricYuri4862">
